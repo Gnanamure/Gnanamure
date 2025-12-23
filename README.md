@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **AWS DevOps**
 
-- 📫 How to reach me **gnanagnan7@gami.com**
+- 📫 How to reach me **gnanagnan7@gamil.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
